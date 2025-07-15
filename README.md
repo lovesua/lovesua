@@ -1,12 +1,14 @@
-![](https://64.media.tumblr.com/defa4e9b55199a7041b2c1d965fab97c/e450ce264d708279-29/s1280x1920/0558b7d42c6a8090eed16903c9415663d8154003.pnj)
+![](https://i.postimg.cc/65qPzVVD/a91e6ebd92efa56e109d56d61f3a5659.jpg)
 
 
 <p align="center">
-  hi i'm sunny.
+  hi i'm sunny ૮ ⍝ ⸝⸝ ⍝ ྀིა
 </p>
 
-***
+<p align="center">
+‿‿‿
+</p>
 
-rentry? [here](https://rentry.co/suapt) !!! ata? [here](https://lovesua.atabook.org/) !!! sign or i will cry/hj
-
-dnc but inspo ok ^^ yey :3 ignore that all my stuff is shitty rn ok yea
+<p align="center">
+https://pronouns.cc/@wonderwall
+</p>
