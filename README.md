@@ -10,5 +10,6 @@
 </p>
 
 <p align="center">
-https://pronouns.cc/@wonderwall
+https://pronouns.cc/@kannaharu
+https://fluffle.cc/manju
 </p>
