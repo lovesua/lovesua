@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  hi im sunny or ciel. i hav auDHD. yeah. 
+  hi im sunny or ciel. i hav auDHD. yeah. sharing sua yume, nonsharing albedo gachikoi
 </p>
 
 <p align="center">
