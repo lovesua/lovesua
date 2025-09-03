@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  hi i'm sunny ૮ ⍝ ⸝⸝ ⍝ ྀིა
+  hi im sunny or ciel. i hav auDHD. yeah. 
 </p>
 
 <p align="center">
@@ -10,6 +10,5 @@
 </p>
 
 <p align="center">
-https://pronouns.cc/@kannaharu
-https://fluffle.cc/manju
+https://fluffle.cc/bibi
 </p>
